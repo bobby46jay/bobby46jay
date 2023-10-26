@@ -1,6 +1,6 @@
 - 👋 Hey name's josh short for joshua i think
 - 👀 Literally anything when it has to do with coding i think
-- 🌱 Currently messing with websites
+- 🌱 Currently creating my own little personal website on neocities
 - 💞️ lone wolf (cool)
 - 📫 You'll never find ol frank
 
